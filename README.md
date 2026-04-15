@@ -1,1 +1,1 @@
-# mtm6407-static-site-bujo0025
+# mtm6407-static-site-bujo0
